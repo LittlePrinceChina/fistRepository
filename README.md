@@ -5,3 +5,8 @@ i just creat this branch for test
 
 
 this is from pc desktop at wp 
+
+this is another things from the myselefnkkl;fdss vsk
+
+
+i releted it again time 2
